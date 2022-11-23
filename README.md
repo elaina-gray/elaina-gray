@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @elaina-gray
+- 👀 I’m interested in competitive programming, machine learning and simulations. 
+- 🌱 I’m currently learning 
+- 📫 How to reach me: 
+- email: zhuwenxin426@gmail.com
+- discord: 星空の夜#9546
+- instagram: __.w3nxin.__
